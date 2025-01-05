@@ -1,16 +1,55 @@
-## Hi there 👋
+<h1 align="center"> > 𝘠𝘰𝘶 𝘴𝘱𝘦𝘯𝘵 𝘵𝘪𝘮𝘦 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘵𝘩𝘪𝘴...
+</h1> 
 
-<!--
-**InnocentSin14/InnocentSin14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
 
-Here are some ideas to get you started:
+<img src=https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/image.png width="240" height="240">
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+----
+
+<div align="center">
+
+![image](https://files.catbox.moe/7sxcol.gif)
+![image](https://files.catbox.moe/1abztm.png)
+![image](https://files.catbox.moe/5r5776.png)
+![image](https://files.catbox.moe/6cn9m2.png)
+![image](https://files.catbox.moe/7zex6u.png)
+![image](https://files.catbox.moe/ah06yd.png)
+</div>
+
+<div align="center">
+
+![image](https://files.catbox.moe/1xt97x.gif)
+</div>
+
+<div align="center">
+
+; 𝘼𝙗𝙤𝙪𝙩 𝙈𝙚
+
+𝙚𝙨𝙥 / 𝙚𝙣𝙜 (𝙢𝙖𝙮𝙗𝙚 𝙗𝙖𝙙)
+
+𝘐'𝘮 𝘢 𝘥𝘶𝘥𝘦 𝘸𝘩𝘰 𝘵𝘰𝘵𝘢𝘭𝘭𝘺 𝘦𝘯𝘫𝘰𝘺 𝘵𝘢𝘭𝘬𝘪𝘯𝘨 𝘢𝘣𝘰𝘶𝘵 𝘵𝘩𝘦 𝘧𝘢𝘯𝘥𝘰𝘮𝘴 𝘪 𝘭𝘪𝘬𝘦.
+</div>
+
+<p align="center"> 
+<a href="https://dummyfan14.straw.page/">sign my strawpage ^_^ !!</a>
+</p>
+
+<div align="center">
+
+![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/576541e6e9f6ea3f06334f645ed3270d14d3caad.gif)
+</div>
+
+<div align="center">
+
+↬ - ❝ 𝙈𝙖𝙞𝙣 𝙁𝙖𝙣𝙙𝙤𝙢𝙨 ❕️ ｡✧･°
+
+⇉ 𝘛𝘰𝘶𝘩𝘰𝘶 𝘗𝘳𝘰𝘫𝘦𝘤𝘵
+
+⇉ 𝘗𝘦𝘳𝘴𝘰𝘯𝘢
+
+⇉ 𝘏𝘦𝘭𝘭𝘰 𝘊𝘩𝘢𝘳𝘭𝘰𝘵𝘵𝘦
+
+![image](https://files.catbox.moe/lyswfh.webp)
+</div>
