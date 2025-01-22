@@ -1,33 +1,26 @@
 <h1 align="center"> > 𝘠𝘰𝘶 𝘴𝘱𝘦𝘯𝘵 𝘵𝘪𝘮𝘦 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘵𝘩𝘪𝘴...
-</h1> 
+</h1>
 
 <div align="center">
 
-<img src=https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/image.png width="240" height="240">
+![image](https://files.catbox.moe/1xt97x.gif)
+![image](https://files.catbox.moe/s1owwd.png)
+➤
+<strong>${\color{#356d7d} 優しく 見守る 私の この手で 眠りなさい}$</strong>
 </div>
 
 ----
 
 <div align="center">
 
-![image](https://files.catbox.moe/7sxcol.gif)
-![image](https://files.catbox.moe/1abztm.png)
-![image](https://files.catbox.moe/5r5776.png)
-![image](https://files.catbox.moe/6cn9m2.png)
-![image](https://files.catbox.moe/7zex6u.png)
-![image](https://files.catbox.moe/ah06yd.png)
+<img width="18" src="https://i.postimg.cc/8CKKnRxT/xoei0d.gif">
 </div>
 
 <div align="center">
 
-![image](https://files.catbox.moe/1xt97x.gif)
-</div>
+⊹ ࣪ ˖ 𝘼𝙗𝙤𝙪𝙩 𝙈𝙚
 
-<div align="center">
-
-; 𝘼𝙗𝙤𝙪𝙩 𝙈𝙚
-
-𝙚𝙨𝙥 / 𝙚𝙣𝙜 (𝙢𝙖𝙮𝙗𝙚 𝙗𝙖𝙙)
+↬ 𝙚𝙨𝙥 / 𝙚𝙣𝙜 (𝙢𝙖𝙮𝙗𝙚 𝙗𝙖𝙙)
 
 𝘐'𝘮 𝘢 𝘥𝘶𝘥𝘦 𝘸𝘩𝘰 𝘵𝘰𝘵𝘢𝘭𝘭𝘺 𝘦𝘯𝘫𝘰𝘺 𝘵𝘢𝘭𝘬𝘪𝘯𝘨 𝘢𝘣𝘰𝘶𝘵 𝘵𝘩𝘦 𝘧𝘢𝘯𝘥𝘰𝘮𝘴 𝘪 𝘭𝘪𝘬𝘦.
 </div>
@@ -38,18 +31,15 @@
 
 <div align="center">
 
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/576541e6e9f6ea3f06334f645ed3270d14d3caad.gif)
+<strong>${\color{#356d7d}✦}$</strong>
 </div>
 
 <div align="center">
 
-↬ - ❝ 𝙈𝙖𝙞𝙣 𝙁𝙖𝙣𝙙𝙤𝙢𝙨 ❕️ ｡✧･°
-
-⇉ 𝘛𝘰𝘶𝘩𝘰𝘶 𝘗𝘳𝘰𝘫𝘦𝘤𝘵
-
-⇉ 𝘗𝘦𝘳𝘴𝘰𝘯𝘢
-
-⇉ 𝘏𝘦𝘭𝘭𝘰 𝘊𝘩𝘢𝘳𝘭𝘰𝘵𝘵𝘦
-
-![image](https://files.catbox.moe/lyswfh.webp)
+![image](https://files.catbox.moe/7sxcol.gif)
+![image](https://files.catbox.moe/1abztm.png)
+![image](https://files.catbox.moe/5r5776.png)
+![image](https://files.catbox.moe/6cn9m2.png)
+![image](https://files.catbox.moe/7zex6u.png)
+![image](https://files.catbox.moe/ah06yd.png)
 </div>
